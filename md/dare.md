@@ -1,0 +1,1 @@
+At DARE, we focus on initiatives that can turn our mission into a reality. Let’s make sure the ‘Pay it Forward’ message spreads throughout our worldwide community. To spread the message, you pass on your DARE-tokens to a colleague, friend or neighbour. Stand out in the crowd, own your role as a thought leader and change maker, and ‘Pay it Forward’. 

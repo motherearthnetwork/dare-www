@@ -1,0 +1,2 @@
+
+Rabobank’s mission statement is _‘Growing a better world together’_. We believe that, in the transformation of the bank, everyone has a role to play. Together, as one Rabo, we can contribute to a better society. Therefore, Rabobank invited studio Elise Marcus to develop the DARE2SHARE project, starting with the ‘Pay it Forward’ concept.

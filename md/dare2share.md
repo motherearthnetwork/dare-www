@@ -1,0 +1,1 @@
+**DARE2SHARE** is a challenge designed to ‘pay forward’ your story through your talents and skills, and measure the social value of our society. At the DARE event 2019, 30.000 coins were spread among Rabobank employees worldwide. The coming months we track the actions and stories, as they travel from Rabobank employees to citizens across the globe. 
